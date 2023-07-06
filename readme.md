@@ -1,4 +1,5 @@
-# 💫 Working on:
+# Hey, I'm rxztent!
+# 💫 Currently working on:
 💻 I'm currently working on TikVerse
 
 
